@@ -4,5 +4,5 @@
 - 👯 I’m looking to collaborate on open-source projects, AI applications, and web development 
 - 📫 How to reach me:: www.linkedin.com/in/prakriti-gautam-74a559356
 - 😄 Pronouns: She/Her ...
-- ⚡ Fun fact: I love exploring fashion trends through tech ...
+- ⚡ Fun fact: I love exploring fashion trends
   
